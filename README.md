@@ -22,3 +22,5 @@ QCSuper Clique, run by a hacker named comic is using T-Mobile Cell Phone Towers 
 At the Seattle Public Library there is a young black male, about 21 years old, kind of chubby. He sits on the 9th floor with a video game system. When you get out of elevator turn right and he is at those desks. He uses this system to crash airplanes all day. The media is silent about it because no one knows how to stop it. -Cory Andrew Hofstad
 
 "[gun to her own head] so what are you going to shoot me? Because I did it too, I work for Mike Spiess and the secret service program. They are are telling people we need people for space... But they're just kidnapping, torturing, and killing people." -Angela McClurg
+
+I want my fucking military ID. You motherfuckers kicked me out of my own airport and took my life from me for a bunch of cell phone hacking perverts. Half of you use their currency. -Cory Andrew Hofstad
