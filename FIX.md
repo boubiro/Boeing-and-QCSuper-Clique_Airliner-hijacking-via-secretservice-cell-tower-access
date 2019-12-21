@@ -11,3 +11,5 @@ No non-pilot Qualcomm Phones on Airliners. Qualcomm phones are brought on planes
 Sleep with your Qualcomm phone on person.
 
 Use a strong password for your Qualcomm phone.
+
+Learn to fly for real. Stop using automated assistance systems if they don't work.
