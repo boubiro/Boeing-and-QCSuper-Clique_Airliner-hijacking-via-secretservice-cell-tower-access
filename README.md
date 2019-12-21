@@ -8,3 +8,5 @@ A hacker named comic is using T-Mobile Cell Phone Towers to hijack Boeing 737 ci
 "Stanley has been trying to dump Boeing for years. No one wants it because no one knows what to do with it. If Boeing cannot make it work on their own, no one want's to try to do better." -Scott Hardman
 
 "Scott Hardman bought me the Qualcomm phone." -Maria-Cristina Spiak
+
+"Mike Spiess gets me into the towers, he's like my other half. He has keys to any cell phone tower on the planet." -Maria-Cristina Spiak
