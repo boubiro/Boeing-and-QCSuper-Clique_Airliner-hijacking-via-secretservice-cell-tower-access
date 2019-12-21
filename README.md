@@ -10,3 +10,5 @@ A hacker named comic is using T-Mobile Cell Phone Towers to hijack Boeing 737 ci
 "Scott Hardman bought me the Qualcomm phone." -Maria-Cristina Spiak
 
 "Mike Spiess gets me into the towers, he's like my other half. He's secret service so he has keys to any cell phone tower on the planet. He just gets a bunch of money and he' says he's cool with whatever I do. He's really broke, and he likes to gamble so he has to support his wife Chari however he can you know?" -Maria-Cristina Spiak
+
+"If you want to take a big jet out, like a 777 you need a phone like Margaret Johnson uses to make planes crash. She got the phone from the Edmonds police department, they don't even know that she still has it. She's better at it than me. If you get good, you can make a lot of money. You should try it. She won't let me use hers anymore, she said I made too much of a big deal with the Malaysia Airlines Flight 370 by not letting hem find the bodies. She said they kept looking for them and almost found them through Hillary Clinton." -Maria-Cristina Spiak
