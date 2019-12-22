@@ -29,4 +29,4 @@ Q. When you steal money from people do you put it in bitcoin? -Cory Andrew Hofst
 
 A. That's always what I do. Why? -Erika Devos @ Seattle International Airport
 
-"The Nova Scotians did not have an airplane solution. I gave them that, and then we planned 9/11. I had a younger girlfriend..." -Scott Hardman
+"The Nova Scotians did not have an airplane solution. I gave them that, and then we planned 9/11. I had a younger girlfriend, I thought I needed another one and they needed a plane. I grew up with Stan Deal, I got the phone idea from one of the mechanics at the Everett Plant. When he found out what I had been doing with the phones, I followed him home and slit his throat and raped his wife... I raped his kid and his dog, I had to know what the dog felt like. It was dead, it felt different." -Scott Hardman
