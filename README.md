@@ -28,3 +28,5 @@ I want my fucking military ID. You motherfuckers kicked me out of my own airport
 Q. When you steal money from people do you put it in bitcoin? -Cory Andrew Hofstad
 
 A. That's always what I do. Why? -Erika Devos @ Seattle International Airport
+
+"The Nova Scotians did not have an airplane solution. I gave them that, and then we planned 9/11. I had a younger girlfriend..." -Scott Hardman
